@@ -6,6 +6,8 @@
 
 <https://payhip.com/Anahys>
 
+<https://jinxxy.com/Mochiko>
+
 <https://mimiiu.gumroad.com/>
 
 <https://payhip.com/bambivr>
