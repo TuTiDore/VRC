@@ -1,8 +1,8 @@
 # VRC
 
-<https://nepvr.gumroad.com/>
+<https://jinxxy.com/nepvr/products>
 
-<https://kaiylast.gumroad.com/>
+<https://kaiylast.love/>
 
 <https://payhip.com/Anahys>
 
@@ -18,12 +18,12 @@
 
 <https://lunanexus.gumroad.com/>
 
-<https://holoexe.gumroad.com/>
+<https://payhip.com/HoloExe>
 
-<https://apyr.gumroad.com/>
+<https://apyr.love/avatars>
 
 <https://datguyful.gumroad.com/>
 
-<https://aelios.gumroad.com/>
+<https://aelios.gay/avatars>
 
 <https://zelfine.gay/avatars>
