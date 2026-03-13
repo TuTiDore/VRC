@@ -1,4 +1,6 @@
-# VRC
+# Top tier avatar creators
+
+at least for me :)
 
 <https://jinxxy.com/nepvr/products>
 
