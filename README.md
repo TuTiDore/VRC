@@ -4,6 +4,8 @@ at least for me :)
 
 <https://jinxxy.com/nepvr/products>
 
+<https://jinxxy.com/LitkaVr>
+
 <https://kaiylast.love/>
 
 <https://payhip.com/Anahys>
