@@ -18,6 +18,8 @@ at least for me :)
 
 <https://larensvr.gumroad.com/>
 
+<https://payhip.com/Cakeii>
+
 <https://nawty.gumroad.com/>
 
 <https://lunanexus.gumroad.com/>
